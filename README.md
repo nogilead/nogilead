@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @nogilead
+- 👀 I’m interested in freedom and independance
+- 🌱 I’m currently learning everyting I can
+- 💞️ I’m looking to collaborate on good causes
+- 📫 How to reach me, im here
+- 😄 Pronouns: they/them 
